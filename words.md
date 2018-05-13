@@ -4,8 +4,6 @@ title: words
 permalink: /words/
 ---
 
-This blog is about _theology_. In other words, this blog is about God.
-
 If God used his Word to create the world, if the Incarnate Word is my Lord, if the saving message
 of the Gospel must be expressed in words, then a few good words might be worth fighting for.
 
@@ -22,3 +20,6 @@ Once you agree, vow to stop abusing them and let's start fixing the world togeth
   convince of anything by throwing this word in your face. People like that are illusionists and
   they have nothing to offer you but smoke, mirrors, and an empty life.
 * _logic_: human reason. Careful thinking that is designed to avoid absurdities and contradictions.
+* _opinion_: the truth. According to you. Basically, what you think. There's nothing humble about
+  pretending that your opinion might be false--in fact, if your opinion coincides with the truth,
+  then this is arrogance. [Read this](../quotes/#opinions).
