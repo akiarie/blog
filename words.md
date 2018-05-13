@@ -18,7 +18,7 @@ Once you agree, vow to stop abusing them and let's start fixing the world togeth
 
 * _science_: knowldege. There is nothing more to it, and don't believe anyone who tries to
   convince of anything by throwing this word in your face. People like that are illusionists and
-  they have nothing to offer you but smoke, mirrors, and an empty life.
+  with nothing to offer you but smoke, mirrors, and an empty life.
 * _logic_: human reason. Careful thinking that is designed to avoid absurdities and contradictions.
 * _opinion_: the truth. According to you. Basically, what you think. There's nothing humble about
   pretending that your opinion might be false--in fact, if your opinion coincides with the truth,
