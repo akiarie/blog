@@ -1,7 +1,7 @@
 ---
 layout: page
-title: terms
-permalink: /terms/
+title: words
+permalink: /words/
 ---
 
 This blog is about _theology_. In other words, this blog is about God.
