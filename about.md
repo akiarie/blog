@@ -22,7 +22,7 @@ The second idea is an abbreviation of these wonderful verses:
 >God will help her when morning dawns.  
 Psalm 46:4-5  
 
-Jonathan Edwards once [suggested](https://www.ccel.org/ccel/edwards/trinity.html) that this
+Jonathan Edwards once [suggested](https://www.ccel.org/ccel/edwards/trinity/files/trinity.html) that this
 river, which is referenced throughout Scripture, is a veiled description of the Holy Spirit. I think
 that's highly interesting, but I'm still trying to determine its truth.
 
