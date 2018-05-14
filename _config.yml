@@ -32,6 +32,8 @@ plugins:
 # Google Anaytics
 google_analytics: UA-119142553-1
 
+permalink: /:categories/:year/:month/:day/:title
+
 # Exclude from processing.
 # The following items will not be processed, by default. Create a custom list
 # to override the default setting.
