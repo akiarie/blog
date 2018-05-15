@@ -1,7 +1,7 @@
 ---
 layout: page
 title: words
-permalink: /words/
+permalink: /words
 ---
 
 If God used his Word to create the world, if the Incarnate Word is my Lord, if the saving message
@@ -23,4 +23,4 @@ Once you agree, vow to stop abusing them and let's start fixing the world togeth
 * _logic_: human reason. Careful thinking that is designed to avoid absurdities and contradictions.
 * _opinion_: the truth. According to you. Basically, what you think. There's nothing humble about
   pretending that your opinion might be false--in fact, if your opinion coincides with the truth,
-  then this is arrogance. [Read this](../quotes/#opinions).
+  then this is arrogance. [Read this]({{ "quotes#opinions" | relative_url }}).
