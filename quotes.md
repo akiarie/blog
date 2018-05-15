@@ -1,7 +1,7 @@
 ---
 layout: page
 title: quotes
-permalink: /quotes/
+permalink: /quotes
 ---
 
 Some short words I wish everyone believed.
