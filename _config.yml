@@ -48,3 +48,5 @@ permalink: /:categories/:year/:month/:day/:title
 #   - vendor/cache/
 #   - vendor/gems/
 #   - vendor/ruby/
+#
+show_drafts: false
