@@ -215,8 +215,9 @@ the principle is the same: they are obligated to spread, defend and exult in thi
 you're a Baptist, and you believe that Scripture teaches the sacrament of baptism should only be
 administered to confessing Christians. Now imagine that a violent group of Paedo-baptists show up at
 your door and demand that you recant your belief, under pain of death. (Before you object that this
-is a contrived situation, go read about Martin Luther and Fritz Erbe, or Ulrich Zwingli and the
-"third baptism".) Tell me, do you have the freedom, as a believer, to recant your views? Can you
+is a contrived situation, go read about
+[Martin Luther and Fritz Erbe](https://www.youtube.com/watch?v=8wce_roG8kQ), or Ulrich Zwingli and
+the "third baptism".) Tell me, do you have the freedom, as a believer, to recant your views? Can you
 declare that the Bible teaches what you _believe_ it does not teach? I testify to you, today, before
 God and in all seriousness, that you have no such freedom.
 
