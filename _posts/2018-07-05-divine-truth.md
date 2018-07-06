@@ -207,7 +207,7 @@ operating in good faith. This is why we, as the Church, reject as heresy any the
 does not teach the Triune God, the Incarnate God and Saviour, that justification is by faith alone
 and all the central doctrines of the faith. We do not extend olive branches to Jehovah's
 Witnesses, or Mormons, or Muslims because it is clear that they are _not_ in fellowship with the God
-described in the Bible, "our only Lord and Master".
+described in the Bible, "our only Master and Lord".
 
 All this being well understood, let me explain what I mean with the above statement.
 When a man becomes convinced that the word of God teaches some truth, no matter how big or small,
