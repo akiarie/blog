@@ -398,3 +398,10 @@ for their works have "not been found complete in the sight" of God. Let us encou
 who "have not soiled their garments" that they will walk with the Lord "in white, for they are
 worthy." And doing thus we are assured that the Lord will confess our names before His Father and
 His angels. (Rev 3:2-5)
+
+# Update (06/07)
+Reading through this article this morning again, it is clear to me that I was impassioned as I wrote
+it, and perhaps---but only perhaps---some of the wording could have been less condescending.
+Nonetheless, I stand with everything said here, this is not a disclaimer.
+
+
