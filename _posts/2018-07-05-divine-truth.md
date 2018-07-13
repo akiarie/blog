@@ -123,7 +123,7 @@ you are standing on spiritual quicksand, and you will soon be lost forever, unle
 > my word.  
 > Isaiah 40:8, 66:2b
 
-O that our hearts would tremble, suddenly and uncontrollably, with exceedingly-great fear, every
+Oh that our hearts would tremble, suddenly and uncontrollably, with exceedingly-great fear, every
 time the thought of doubting, of tampering with, of stretching, of manipulating, of misapplying, or
 of practising cunning with the Word of God enters our sinful minds!
 Let us learn to flee to our knees and cry with Agur,
