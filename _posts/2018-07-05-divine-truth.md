@@ -12,7 +12,7 @@ published: true
 
 Today I'm going to teach you what these words mean. I have recently become convinced that most
 Christians who claim to believe in the authority of the Scripture, or more completely, the
-authority of the Holy Spirit as He speaks in all the Scripture, have been sloppy in their thinking,
+authority of the Holy Spirit as he speaks in all the Scripture, have been sloppy in their thinking,
 and have therefore never understood the implications of such a belief.
 This should be deeply distressing to the Church, that most professing Christians do not understand
 or are too lazy to follow the most basic implications of this, the most basic axiom of the faith.
@@ -95,7 +95,7 @@ The answer to questions like this has, is and will always be, absolutely not. As
 "Scripture cannot be broken" (John 10:35). So this is the way it works, whenever you think you see a
 contradiction in Scripture, you have two alternatives:
 1. You can acknowledge in humility that it is your flawed and sinful mind that has failed to see the
-consistent truth that is being _clearly_ expressed by the Spirit, ask Him to enlighten Your eyes,
+consistent truth that is being _clearly_ expressed by the Spirit, ask him to enlighten Your eyes,
 and begin to pursue this _subjective_ reconciliation (for Scripture, being consistent, needs no
 reconciliation outside our perverted minds)
 2. You can reject Christianity and the audacious claims of an antiquated text written by uneducated
@@ -103,8 +103,8 @@ reconciliation outside our perverted minds)
 
 Listen to me. To believe in your heart of hearts that the Scripture is contradictory, even on the
 most miniscule of points, is to charge the God with ignorance, impotency or deceit. If there is but
-one minor contradiction, either He does not know the truth, or He has a speech impediment and cannot
-communicate Himself, or He is a liar. I hope that everyone reading this has enough fear of God to
+one minor contradiction, either he does not know the truth, or he has a speech impediment and cannot
+communicate himself, or he is a liar. I hope that everyone reading this has enough fear of God to
 shrink back in terror from such blasphemy. But, because of the great importance of this point, I
 will push things one step further. Recall that it is the special office of the Holy Spirit to
 inspire the writing of the Bible, because as we are told:
@@ -144,13 +144,13 @@ Do you know, dear Christian, that you know nothing except that which has been gi
 > descended from heaven, the Son of Man.  
 > John 3:11-13  
 
-He and He alone has brought us "grace and truth" (John 1:17):
+He and he alone has brought us "grace and truth" (John 1:17):
 > For there is one God, and there is one mediator between God and men, the man Christ Jesus.  
 > 1 Timothy 2:5
 
 Bearing this weighty truth in mind, that all truth is in God, and God is revealed to us only
-in His Son, and His Son is revealed to us only by the Holy Spirit, and the Spirit speaks to us only
-through His word, shall we begin to twist this word with impunity? 
+in his Son, and his Son is revealed to us only by the Holy Spirit, and the Spirit speaks to us only
+through his word, shall we begin to twist this word with impunity? 
 In the words of Conrad Mbewe, what sane mother would throw her newborn baby into a sewer? If this
 prospect moves you to pity, then do not tamper with the word of God, for it is _far_ more
 shameless, vile and heartless.
@@ -291,9 +291,9 @@ nature of God, as did Elihu long before him:
 Abandon the faith and you will only succeed in condemning yourself: you will take nothing, no glory,
 no joy, no victory, from the Lord Jesus Christ. With or without you, "He shall see of the travail of
 his soul, and shall be satisfied" (Isaiah 53:11 KJV). I add here that none of this is even remotely
-inconsistent with the doctrine of the perseverance of the saints. God's people are preserved by Him,
-and one of the means that He uses to preserve them is the threats in Scripture which, if they
-discarded, they would not be believers, but since they are His, they shudder and pay attention to
+inconsistent with the doctrine of the perseverance of the saints. God's people are preserved by him,
+and one of the means that he uses to preserve them is the threats in Scripture which, if they
+discarded, they would not be believers, but since they are his, they shudder and pay attention to
 them, and in so doing persevere. This dual truth is expressed by Paul shortly afterward in the same
 chapter:
 > But God's firm foundation stands, bearing this seal: "The Lord knows those who are his", and, "Let
@@ -361,7 +361,7 @@ mysteries of God that have been entrusted to us, and perhaps suffer and to fill 
 in Christ's afflictions" (Colossians 1:24).
 
 Today we are hearing of Church leaders who allegedly "humbly sought the guidance of the Holy Spirit
-through the process of studying the scriptures". But yet they do _manifest_ violence to His word.
+through the process of studying the scriptures". But yet they do _manifest_ violence to his word.
 They are openly participating in the ongoing and rapid corruption of our generation---our
 generation of believers. I ask you, what right have you to remain silent? Is it not our duty to
 "mourn" and then call them to repentance? Does not "a little leaven leaven the whole lump"?
@@ -381,13 +381,13 @@ for us, by the Holy Spirit, in Paul's rebuke of Peter:
 > Galatians 2:11-14
 
 Look at this. Peter "stood condemned" simply by withdrawing from the Gentiles when the Jews came. He
-did not publish doctrine contrary to Scripture, He did not begin teaching heresy, He only lived it,
+did not publish doctrine contrary to Scripture, he did not begin teaching heresy, he only lived it,
 and only for a moment, and Paul tells us that he "stood condemned". Did Paul wait to see if Peter's
 intentions were "genuine"? What about the fact that Peter was the first apostle to go to the
 Gentiles (Acts 10)? What about the fact that He publicly defended the inclusion of the Gentile
 Church at the Jerusalem Council in Acts 11? Weren't all these actions enough to show that his "heart
 was in the right place"? No, by God, no. He was acting hypocritically and betraying the truth of the
-Gospel, the truth of God. And so Paul rebuked Him.
+Gospel, the truth of God. And so Paul rebuked him.
 
 And so I warn you, with all the love in my heart, that we will likewise stand condemned if we
 remain idle while the Scripture is being twisted beyond recognition. We must oppose these lies,
@@ -396,8 +396,8 @@ We must not continue to pretend that all is well, that this kind of disobedience
 judgement of God. Let us urge them to "wake up, and strengthen what remains and is about to die,"
 for their works have "not been found complete in the sight" of God. Let us encourage the few names
 who "have not soiled their garments" that they will walk with the Lord "in white, for they are
-worthy." And doing thus we are assured that the Lord will confess our names before His Father and
-His angels. (Rev 3:2-5)
+worthy." And doing thus we are assured that the Lord will confess our names before his Father and
+his angels. (Rev 3:2-5)
 
 # Update (06/07)
 Reading through this article this morning again, it is clear to me that I was impassioned as I wrote
