@@ -125,7 +125,7 @@ you are standing on spiritual quicksand, and you will soon be lost forever, unle
 
 Oh that our hearts would tremble, suddenly and uncontrollably, with exceedingly-great fear, every
 time the thought of doubting, of tampering with, of stretching, of manipulating, of misapplying, or
-of practising cunning with the Word of God enters our sinful minds!
+of practising cunning with the word of God enters our sinful minds!
 Let us learn to flee to our knees and cry with Agur,
 > Surely I am too stupid to be a man. I have not the understanding of a man.  
 > I have not learned wisdom, nor have I knowledge of the Holy One.  
