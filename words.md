@@ -12,9 +12,9 @@ Once you agree, vow to stop abusing them and let's start fixing the world togeth
 
 * _theology_: this is the study of God. Forget about academia, this is something that
   [every man](https://www.the-highway.com/theology_Gerstner.html) must do.
-  You only get to choose between being a
-    * Lousy theologian, possessed by the zeitgeist of your day and controlled by traditions you don't
-      understand, and
+  You only get to choose between
+    * Being a lousy theologian, possessed by the zeitgeist of your day and controlled by traditions
+      you don't understand, and
     * Learning the truth for yourself, by reading the Bible carefully and logically.
 
 * _science_: knowledge. There is nothing more to it, and don't believe anyone who tries to convince
