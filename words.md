@@ -15,7 +15,7 @@ Once you agree, vow to stop abusing them and let's start fixing the world togeth
   You only get to choose between
     * Being a lousy theologian, possessed by the zeitgeist of your day and controlled by traditions
       you don't understand, and
-    * Learning the truth for yourself, by reading the Bible carefully and logically.
+    * Learning the truth for yourself by reading the Bible carefully and logically.
 
 * _science_: knowledge. There is nothing more to it, and don't believe anyone who tries to convince
   you of anything by throwing this word in your face. People like that are illusionists with nothing
