@@ -30,14 +30,14 @@ The great danger is that the Lord becomes indistinguishable from his gifts.
 And in similar fashion, our understanding of the word of God becomes crystallised in traditional
 interpretations, so that we lack the capacity to read the Scripture "like newborn infants, longing
 for the pure spiritual milk" (1 Peter 2:1). It is with respect to this latter tragedy I would like
-to focus your attention on 1 Corinthians 2.
+to focus your attention.
 
-It has been my experience that whenever verse 9 is read in contemporary evangelical circles, the
-clarifying note that follows it is either glossed over or completely neglected. "__These things__
-God has revealed to us through the Spirit." Which things? "What no eye has seen, nor ear heard, nor
-the heart of man imagined, what God has prepared for those who love him."
-The devastating effect of neglecting this crucial clause is that this wonderful promise is woefully
-misinterpreted and therefore misapplied to heaven.
+It has been my experience that whenever 1 Corinthians 2:9 is read in contemporary evangelical
+circles, verse 10 is either glossed over or completely neglected. "__These things__ God has revealed
+to us through the Spirit." Which things? "What no eye has seen, nor ear heard, nor the heart of man
+imagined, what God has prepared for those who love him." The devastating effect of neglecting this
+crucial clause is that this wonderful promise is woefully misinterpreted and therefore misapplied to
+heaven.
 
 But if you join me in wiping clear the dusty lens of tradition, it should immediately be clear that
 Paul has no such idea in mind. He is speaking instead of the glorious truths revealed to believers
