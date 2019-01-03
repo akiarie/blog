@@ -1,9 +1,9 @@
 ---
 layout: post
 title: "Yea, the Deep Things of God"
-date: 2019-01-03 04:00:00 +0200
+date: 2019-01-03 08:00:00 +0300
 tags: [Spirit, theology]
-published: false
+published: true
 ---
 
 > But, as it is written,
@@ -106,11 +106,14 @@ full of his glory!" is the cry of the seraphs (Isaiah 6:3), to which the apostle
 > from the Father, full of grace and truth.  
 John 1:14
 
-Also see John 12:41. In short, "No one has ever seen God"---not the patriarchs, not the prophets, not
-even the angels who are constrained in reverence and fear to cover their faces---and yet "the
-only God, who is at the Father's side, he has made him known" (John 1:18). And he has made him known
-_to us_, the saints. It is of this grand transition of incalculable significance, the revelation of
-the only God through Christ the Mediator, that Paul and Peter speak.
+Also see John 12:41, in which we get the apostolic interpretation of Isaiah's vision of the throne
+as being of Christ.
+
+In short, "No one has ever seen God"---not the patriarchs, not the prophets, not even the angels who
+are constrained in reverence and fear to cover their faces---and yet "the only God, who is at the
+Father's side, he has made him known" (John 1:18). And he has made him known _to us_, the saints. It
+is of this grand transition of incalculable significance, the revelation of the only God through
+Christ the Mediator, that Paul and Peter speak.
 
 "For the Spirit searches everything, even the depths of God." The Spirit of God was not poured out
 from heaven to deal with trivial things like our physical illnesses and financial woes. Fool! Your
@@ -126,7 +129,7 @@ An eternal life that begins now, one in which you can participate today?
 These are the things that the Spirit of God was poured out to teach us, and it is using these truths
 _alone_ that he transforms lives. Has he laid hold of your heart with his mighty hand? Do you have
 the mind of Christ? Tell me, have you beheld the glory of the Son, have you received grace upon
-grace from his fullness?  Has the Spirit of God has shone in your heart to give the light of the
+grace from his fullness? Has the Spirit of God shone in your heart to give the light of the
 knowledge of the glory of God in the face of Jesus Christ (2 Corinthians 4:6)? These are the only
 questions that matter.
 
@@ -135,8 +138,8 @@ particularly, Protestantism---there is a famine of the hearing of the words of G
 Our gold has grown dim and our pure gold has changed, the holy stones lie scattered at the head of
 every street (Lamentations 4:1). The chief consequence of this famine is that it has opened the
 Church to the introduction of a deadly, blasphemous, and Satanic heresy regarding the Holy Spirit.
-And the teaching of this twisted doctrine must be laid at the feet of the Hyper-charismatic,
-Neo-pentecostal, Word of Faith movement.
+And the teaching of this twisted doctrine must be laid at the feet of the hyper-charismatic,
+neo-pentecostal, Word of Faith movement.
 What is this teaching, this perversion of sacred truth? It is the idea that the ministry of the Holy
 Spirit can be separated from the word of God, and in particular, its central teaching which is only
 Christ. This is the idea that the Spirit has or will ever work in a manner that is divorced from the
@@ -150,8 +153,8 @@ believers come to terms with what the Spirit of God teaches concerning himself a
 ministry, in his word.
 
 And it is for this alone that I want to militate and plead today. When is the last time your pastor
-spoke about the Incarnation and its consequences? What are you taught regarding the obedience of
-Christ and the meaning of his sufferings? Why did Christ ascend and what is the true meaning of
+spoke about the Incarnation and its consequences? What are you being taught regarding the obedience
+of Christ and the meaning of his sufferings? Why did Christ ascend and what is the true meaning of
 Pentecost? If you are not hearing satisfactorily Biblical answers to this question---and I am bold
 enough to say, answers closely related to the material I have outlined today---then know that your
 church has forsaken its first love. And if you are not fuelling your life---your devotions, your war
@@ -165,3 +168,12 @@ truths, you also have forsaken your first love.
 
 It is time, then, for all of us to wake up and strengthen what remains and is about to die, lest the
 Lord judge our works as being incomplete in the sight of God.
+
+> Or do you suppose it is to no purpose that the Scripture says, "He yearns jealously over the
+> spirit that he has made to dwell in us"? But he gives more grace. Therefore it says, "God opposes
+> the proud but gives grace to the humble." Submit yourselves therefore to God. Resist the devil,
+> and he will flee from you. Draw near to God, and he will draw near to you. Cleanse your hands, you
+> sinners, and purify your hearts, you double-minded. Be wretched and mourn and weep. Let your
+> laughter be turned to mourning and your joy to gloom. Humble yourselves before the Lord, and he
+> will exalt you.  
+> James 4:5–10
