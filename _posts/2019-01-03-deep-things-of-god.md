@@ -56,8 +56,8 @@ Again, note the past tense used and the vital connection to the ministry of the 
 Ponder for a moment the astounding claim that is being advanced by the apostles in these passages.
 The glory of the central truths concerning God and his Christ, the deep things of God, these things
 are of such a wondrous nature that they are altogether unlike what is experienced by the lost
-world---no, they possess a glory that altogether transcends the experience of the patriarchs, Moses
-and the Old Testament prophets.
+world---in fact, they possess a glory that altogether transcends the experience of the patriarchs,
+Moses and the Old Testament prophets.
 
 Jacob wrestled with God through the night, at the end of which ordeal he asks the angel, "what is
 your name?" But though he was blessed by God, having his name changed to Israel, he received no
