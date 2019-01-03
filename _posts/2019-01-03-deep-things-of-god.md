@@ -94,7 +94,7 @@ revealed:
 > Isaiah 60:1–3
 
 In speaking thus Isaiah clearly acknowledges the vast surpassing glory of the time in which the
-Messiah is revealed, i.e. in _our_ time.
+Messiah is revealed, which is our time.
 
 But with these brief remarks we are yet to exhaust the expansive outline of the promise that Paul
 and Peter announce regarding our times. "Things into which angels long to look"---we see in the
