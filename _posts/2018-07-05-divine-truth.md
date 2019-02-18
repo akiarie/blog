@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Guarding Divine Truth: The Essential Duty of Every Christian"
+title: "Guarding Divine Truth: the Duty of all Believers"
 date: 2018-07-05 23:00:00 +0200
 tags: [schism, heresy, authority, truth]
 published: true
