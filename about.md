@@ -36,4 +36,6 @@ person, in their singular and plural variants, because this is my site and I am 
 disregard arbitrary writing conventions that have only ever confused me.
 
 ---
-Unless stated otherwise, all Bible verses quoted are from the ESV.
+Unless stated otherwise, all Bible verses quoted are _mostly_ from the ESV. I say _mostly_ because I
+will often change a word or two, such as using _man_ where the ESV translators have chosen to use
+_person_. So I encourage readers to compare doubtful quotations with translations that they trust.
