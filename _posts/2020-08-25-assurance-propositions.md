@@ -103,8 +103,8 @@ published: true
 
 12. It is not mercenary to seek to be conformed to the image of Jesus Christ. The mercenary attitude
    enters only at that point where our actions are done in order to achieve a reward which those
-   actions are not organically related to. Assurance is a fruit yielded in season on the tree that
-   is the righteous man, planted by streams of water. "By this my Father is glorified, that you
+   actions are not organically related to. Full assurance is a fruit yielded in season on the tree
+   that is the righteous man, planted by streams of water. "By this my Father is glorified, that you
    bear much fruit and so prove to be my disciples" (John 15:8)---for as long as we keep our eyes
    fixed on this organic relationship there will be no difficulty in working for God's glory and
    working to confirm our calling and election. Does the sunflower angle itself toward the sun in
