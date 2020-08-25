@@ -58,7 +58,7 @@ published: true
    John 1:7)---assurance grows organically through walking in the light in communion with God's
    people.
 
-7. **By abandoning these means of grace, therefore, the believer may undermine greatly his
+7. **By abandoning these means of grace, therefore, the believer may greatly undermine his
    assurance.** I do not say, nor do I claim to understand, how great an extent this may be, except
    that believers are "never utterly destitute of that seed of God, and life of faith, that love of
    Christ and the brethren, that sincerity of heart, and conscience of duty, out of which, by the
