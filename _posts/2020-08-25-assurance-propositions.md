@@ -39,7 +39,7 @@ published: true
    as orphans; I will come to you...In that day you will _know_ that I am in my Father, and _you in
    me, and I in you_" (John 14:15ff.); "The Spirit himself _bears witness with our spirit_ that we
    are the children of God" (Rom. 8:16); "In him you also...were sealed with the promised Holy
-   Spirit, who is the _guarantee_ of our inheritance" (Ep. 1:13--14); "'This is my covenant with
+   Spirit, who is the _guarantee_ of our inheritance" (Eph. 1:13--14); "'This is my covenant with
    them', says the LORD, 'My Spirit that is upon you'" (Is. 59:21).
 
 4. This witness, the _testimonium Spiritus Sancti salvationis_ (the testimony of the Holy Spirit
