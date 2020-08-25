@@ -105,7 +105,7 @@ published: true
    be assured.** The mercenary attitude enters only at that point where our actions are done in
    order to achieve a reward which those actions are not organically related to. Full assurance is a
    fruit yielded in season on the tree that is the righteous man, planted by streams of water.
-   Ironically, those who resist this understanding of assurance claim it trivialises union with
+   Strangely, some who resist this understanding of assurance claim it trivialises union with
    Christ. And yet it does the very opposite: it insists that as Christ's vitality flows into the
    believer, he will grow in obedience, and thereby be assured of his union with Christ.  "By this
    my Father is glorified, that you bear much fruit and so prove to be my disciples" (John
