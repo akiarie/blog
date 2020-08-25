@@ -153,7 +153,7 @@ published: true
    tollit usum_ (abuse does not destroy proper use): we cannot argue from the shipwrecks of faith
    which those who misunderstand this doctrine have made to its invalidity. Let us instead, without
    wavering or fearing, lift up our drooping hands and strengthen our weak knees, so that what is
-   lamed may not be put out of joint but rather healed, in order to strive for peace and the
+   lame may not be put out of joint but rather healed, in order to strive for peace and the
    holiness without which no one will see the Lord. Let us be grateful for receiving a kingdom that
    cannot be shaken, and thus let us offer to God acceptable worship, with reverence and awe, for
    our God is a consuming fire (Heb. 12:12ff.)
