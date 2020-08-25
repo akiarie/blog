@@ -8,11 +8,12 @@ published: true
 
 # Definitions
 - By _the Gospel_ I mean the whole counsel of God, as taught authoritatively in Holy Scripture,
-   which is in all its contents, from beginning to end, the
-   revelation of Jesus Christ as Mediator between God and man.
+   which is in all its contents, from beginning to end, the revelation of Jesus Christ as Mediator
+   between God and man.
 
 - By _certainty_ or _faith_ I mean the soul's persuation of, and commitment to, the truth of the
-   Gospel: in a word, the saving commitment of the self to Jesus Christ, as he offers himself in his Gospel.
+  Gospel: in a word, the saving commitment of the self to Jesus Christ, as he offers himself in his
+  Gospel.
 
 - By _security_ I mean the likelihood or probability of an individual person entering heaven.
    That is to say, a secure person is one who will be in heaven.
@@ -87,9 +88,9 @@ published: true
 10. The Bible comforts the sinner who desires holiness, but condmens the one who hardens his heart
    in sin. God's kindness leads to repentance (Rom. 2:4) and God cannot be mocked, whatever a man
    sows, that shall he also reap (Gal. 6:7). "God opposess the proud but gives grace to the humble"
-   is in this sense a summary of the Biblical doctrine of assurance: the proud can have no security, and should
-   regard themselves as hanging on the precipice over hell; yet the humble, no matter how grave
-   their transgressions, be they so many as the stars in heaven and the grains of sand on the
+   is in this sense a summary of the Biblical doctrine of assurance: the proud can have no security,
+   and should regard themselves as hanging on the precipice over hell; yet the humble, no matter how
+   grave their transgressions, be they so many as the stars in heaven and the grains of sand on the
    seashore, may always return to "an advocate with the Father, Jesus Christ the righteous" (1 John
    2:1).
 
@@ -102,9 +103,13 @@ published: true
 
 12. It is not mercenary to seek to be conformed to the image of Jesus Christ. The mercenary attitude
    enters at the exact point that actions are done in order to achieve a reward which those actions
-   are not organically (I will keep using this word without shame) related to. C.S. Lewis makes this
-   very clear in his famous address _The Weight of Glory_. I make no apology for quoting him at
-   length: 
+   are not organically (I will keep using this word without shame) related to. Assurance is a fruit
+   yielded in season on the tree that is the righteous man, planted by streams of water. 
+   "By this my Father is glorified, that you bear much fruit and so prove to be my disciples" (John
+   15:8)---for as long as we keep our eyes fixed on this organic relationship there will be no
+   difficulty in working for God's glory and working to confirm our calling and election.
+   C.S. Lewis makes this very clear in his famous address _The Weight of Glory_. I make no apology
+   for quoting him at length: 
     > The New Testament has lots to say about self-denial, but not about self-denial as an end in
     > itself. We are told to deny ourselves and to take up our crosses in order that we may follow
     > Christ; and nearly every description of what we shall ultimately find if we do so contains an
