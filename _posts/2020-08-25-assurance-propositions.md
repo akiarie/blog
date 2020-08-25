@@ -101,16 +101,24 @@ published: true
    conviction that this sonhood is a reality. So that to grow this conviction we seek to abound in
    good works, and where these works are absent or latent this conviction must needs be weakened.
 
-12. It is not mercenary to seek to be conformed to the image of Jesus Christ. The mercenary attitude
-   enters only at that point where our actions are done in order to achieve a reward which those
-   actions are not organically related to. Full assurance is a fruit yielded in season on the tree
-   that is the righteous man, planted by streams of water. "By this my Father is glorified, that you
-   bear much fruit and so prove to be my disciples" (John 15:8)---for as long as we keep our eyes
-   fixed on this organic relationship there will be no difficulty in working for God's glory and
-   working to confirm our calling and election. Does the sunflower angle itself toward the sun in
-   order to bask in the sun's glory, or in order to flourish? Isn't this a false dichotomy? C.S.
-   Lewis makes this point very clear in his famous address _The Weight of Glory_. I make no apology
-   for quoting him at length: 
+12. It is not mercenary to seek to be conformed to the image of Jesus Christ in order that we may be
+   assured. The mercenary attitude enters only at that point where our actions are done in order to
+   achieve a reward which those actions are not organically related to. Full assurance is a fruit
+   yielded in season on the tree that is the righteous man, planted by streams of water.
+   Ironically, those who resist this understanding of assurance claim it trivialises union with
+   Christ. And yet it does the very opposite: it insists that as Christ's vitality flows into the
+   believer, he will grow in obedience, and thereby be assured of his union with Christ.
+   "By this my Father is glorified, that you bear much fruit and so prove to be my disciples" (John
+   15:8)---for as long as we keep our eyes fixed on this organic relationship there will be no
+   difficulty in working for God's glory and working to confirm our calling and election. It is
+   right to seek assurance as the implication of living lives consecrated to God. It is not as if we
+   say to God, "Give us assurance and we will give you works", but instead we cry out with David,
+   "Great peace have those who love your law; nothing can make them stumble" (Ps. 119:165).  Does
+   the sunflower turn itself in order to bask in the sun's glory or in order to flourish? Isn't this
+   a false dichotomy? Do we not love God's glory knowing that there is no higher good for us? "A
+   man's chief end is to glorify God and to enjoy him forever"---must these two be rent asunder?.
+   C.S. Lewis makes this point very clear in his famous address _The Weight of Glory_. I make no
+   apology for quoting him at length: 
     > The New Testament has lots to say about self-denial, but not about self-denial as an end in
     > itself. We are told to deny ourselves and to take up our crosses in order that we may follow
     > Christ; and nearly every description of what we shall ultimately find if we do so contains an
