@@ -87,7 +87,7 @@ published: true
 10. The Bible comforts the sinner who desires holiness, but condmens the one who hardens his heart
    in sin. God's kindness leads to repentance (Rom. 2:4) and God cannot be mocked, whatever a man
    sows, that shall he also reap (Gal. 6:7). "God opposess the proud but gives grace to the humble"
-   is a summary of the Biblical doctrine of assurance: the proud can have no security, and should
+   is in this sense a summary of the Biblical doctrine of assurance: the proud can have no security, and should
    regard themselves as hanging on the precipice over hell; yet the humble, no matter how grave
    their transgressions, be they so many as the stars in heaven and the grains of sand on the
    seashore, may always return to "an advocate with the Father, Jesus Christ the righteous" (1 John
