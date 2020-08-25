@@ -139,8 +139,8 @@ published: true
    because we keep his law? The truth is that God teaches us he loves us---and that we love him---by
    _empowering_ us to keep his law? The New Covenant involves God writing his law on the hearts of
    his people: "I will put my law within them, and I will write it on their hearts" (Jer. 31:33).
-   Why should we think it inconsistent for God to assure us by manifesting to us, in our very lives,
-   the very effects of this transformation?
+   Why should we think it strange for God to assure us by manifesting to us, in our very lives, the
+   sanctifying impact of his grace?
 
 14. Assurance, like every part of the Gospel, is a heavenly mystery, beyond the reach of the natural
    man. It is Spiritually discerned, and folly to those who are perishing. Moreover, _abusus non
