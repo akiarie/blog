@@ -130,17 +130,17 @@ published: true
     > but are the activity itself in consummation. 
 
 13. Believers should therefore have no qualms about encouraging one another to work for the reward
-   of assurance. Provided that this is done without suggesting that salvation is by works, we are
-   well within the bounds of Scripture. Listen to the Saviour, "Whoever has my commandments and
-   keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will
-   love him and manifest myself to him." (John 14:21) Tell me, does he foster works-based salvation
-   and the self-righteous attitude? Does anyone dare accuse him of undermining the principle of
-   grace which he himself enacted into operation? Does he teach that God loves us because we keep
-   his law? Or is it instead, obviously, that God teaches us he loves us, and that we love him, by
-   _empowering_ us to keep his law? The New Covenant involves God writing his law on the hearts of
-   his people: "I will put my law within them, and I will write it on their hearts" (Jer. 31:33).
-   Why should we think it inconsistent for God to assure us by manifesting to us, in our very lives,
-   the very effects of this transformation?
+   of multiplied assurance. Provided that this is done without suggesting that salvation is by
+   works, we are well within the bounds of Scripture. Listen to the Saviour, "Whoever has my
+   commandments and keeps them, he it is who loves me. And he who loves me will be loved by my
+   Father, and I will love him and manifest myself to him." (John 14:21) Tell me, does he foster
+   works-based salvation and the self-righteous attitude? Does anyone dare accuse him of undermining
+   the principle of grace which he himself enacted into operation? Does he teach that God loves us
+   because we keep his law? Or is it instead, obviously, that God teaches us he loves us, and that
+   we love him, by _empowering_ us to keep his law? The New Covenant involves God writing his law on
+   the hearts of his people: "I will put my law within them, and I will write it on their hearts"
+   (Jer. 31:33).  Why should we think it inconsistent for God to assure us by manifesting to us, in
+   our very lives, the very effects of this transformation?
 
 14. Assurance, like every part of the Gospel, is a heavenly mystery, beyond the reach of the natural
    man. It is Spiritually discerned, and folly to those who are perishing. Moreover, _abusus non
