@@ -7,17 +7,17 @@ published: true
 ---
 
 # Definitions
-1. By _the Gospel_ I mean the whole counsel of God, as taught authoritatively in Holy Scripture,
+- By _the Gospel_ I mean the whole counsel of God, as taught authoritatively in Holy Scripture,
    which is in all its contents, from beginning to end, without any doubt whatever, the
    revelation of Jesus Christ as Mediator between God and man.
 
-2. By _certainty_ or _faith_ I mean the soul's persuation of, and commitment to, the truth of the
+- By _certainty_ or _faith_ I mean the soul's persuation of, and commitment to, the truth of the
    Gospel: in a word, the saving commitment of the self to the redemption offered Jesus Christ.
 
-3. By _security_ I mean the likelihood or probability of an individual person entering heaven.
+- By _security_ I mean the likelihood or probability of an individual person entering heaven.
    That is to say, a secure person is one who will be in heaven.
 
-4. By _assurance of salvation_ or _assurance_ I mean, in contrast to certainty, the soul's
+- By _assurance of salvation_ or _assurance_ I mean, in contrast to certainty, the soul's
    persuation of its own security.
 
 # Propositions
