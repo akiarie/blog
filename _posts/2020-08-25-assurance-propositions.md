@@ -107,7 +107,7 @@ published: true
    fruit yielded in season on the tree that is the righteous man, planted by streams of water.
    Strangely, some who resist this understanding of assurance claim it trivialises union with
    Christ. And yet it does the very opposite: it insists that as Christ's vitality flows into the
-   believer, he will grow in obedience, and thereby be assured of his union with Christ.  "By this
+   believer, he will grow in obedience, and thereby be assured of his union with Christ. "By this
    my Father is glorified, that you bear much fruit and so prove to be my disciples" (John
    15:8)---for as long as we keep our eyes fixed on this organic relationship there will be no
    difficulty in working for God's glory and working to confirm our calling and election. It is
@@ -116,7 +116,7 @@ published: true
    "Great peace have those who love your law; nothing can make them stumble" (Ps. 119:165).  Does
    the sunflower turn itself in order to bask in the sun's glory or in order to flourish? Isn't this
    a false dichotomy? Do we not love God's glory knowing that there is no higher good for us? "A
-   man's chief end is to glorify God and to enjoy him forever"---must these two be rent asunder?.
+   man's chief end is to glorify God and to enjoy him forever"---must these two be rent asunder?
    C.S. Lewis makes this point very clear in his famous address _The Weight of Glory_. I make no
    apology for quoting him at length: 
     > The New Testament has lots to say about self-denial, but not about self-denial as an end in
