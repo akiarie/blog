@@ -70,7 +70,13 @@ published: true
    blind, having forgotten that he was cleansed from his former sins" (2 Pet. 1:9). He can no longer
    separate between himself and the apostate (who never knew the Lord) until he, as James instructs,
    cleanses his hands and purifies his heart, drawing near to God with wretchedness and mourning and
-   weeping and gloom (James 4:6ff).
+   weeping and gloom (Jam. 4:6ff). As Sinclair Ferguson puts it,
+    >  We may therefore take it as axiomatic that high degrees of true assurance cannot be enjoyed
+    >  by those who persist in low levels of obedience. There is only one answer when [carnal
+    >  inconsistency] gains the ascendency. We need to be led afresh by the Spirit, to show that we
+    >  are sons of God by mortifying the deeds of the flesh (Rom. 8:13-14). Assurance in this
+    >  respect always accompanies single-mindedness. It is the double-minded man only who is
+    >  unstable (lacks assurance) in all his ways (Jam. 1:8).
 
 8. **It is important that believers know this assurance varies, so that when it is shaken, they do
    not fall into utter despair.** For if the assurance of the godly cannot be shaken it follows
