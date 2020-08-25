@@ -90,9 +90,9 @@ published: true
    sows, that shall he also reap (Gal. 6:7). "God opposess the proud but gives grace to the humble"
    is in this sense a summary of the Biblical doctrine of assurance: the proud can have no security,
    and should regard themselves as hanging on the precipice over hell; yet the humble, no matter how
-   grave their transgressions, be they so many as the stars in heaven and the grains of sand on the
-   seashore, may always return to "an advocate with the Father, Jesus Christ the righteous" (1 John
-   2:1).
+   grave their transgressions, be they so many as the stars in heaven and so black as the heavens
+   without stars, may always return to "an advocate with the Father, Jesus Christ the righteous" (1
+   John 2:1).
 
 11. Good works done out of gratitude for God's love and good works done in order to multiply and
    confirm assurance are so far from being in contradiction to one another that they are one and the
