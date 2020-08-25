@@ -141,12 +141,12 @@ published: true
    commandments and keeps them, he it is who loves me. And he who loves me will be loved by my
    Father, and I will love him and manifest myself to him." (John 14:21) Tell me, does he foster
    works-based salvation and the self-righteous attitude? Does anyone dare accuse him of undermining
-   the principle of grace which he enacted into operation that very night? Does he teach that God
-   loves us because we keep his law? The truth is that God teaches us he loves us---and that we love
-   him---by _empowering_ us to keep his law. The New Covenant involves God writing his law on the
-   hearts of his people: "I will put my law within them, and I will write it on their hearts" (Jer.
-   31:33).  Why should we think it strange for God to assure us by manifesting to us, in our very
-   lives, the sanctifying impact of his grace?
+   the principle of grace which he himself enacted into operation that very night? Does he teach
+   that God loves us because we keep his law? The truth is that God teaches us he loves us---and
+   that we love him---by _empowering_ us to keep his law. The New Covenant involves God writing his
+   law on the hearts of his people: "I will put my law within them, and I will write it on their
+   hearts" (Jer.  31:33).  Why should we think it strange for God to assure us by manifesting to us,
+   in our very lives, the sanctifying impact of his grace?
 
 14. Assurance, like every part of the Gospel, is a heavenly mystery, beyond the reach of the natural
    man. It is Spiritually discerned, and folly to those who are perishing. Moreover, _abusus non
