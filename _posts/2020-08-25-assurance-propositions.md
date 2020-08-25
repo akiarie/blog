@@ -142,7 +142,7 @@ published: true
    Father, and I will love him and manifest myself to him." (John 14:21) Tell me, does he foster
    works-based salvation and the self-righteous attitude? Does anyone dare accuse him of undermining
    the principle of grace which he himself enacted into operation that very night? Does he teach
-   that God loves us because we keep his law? The truth is that God teaches us he loves us---and
+   that God loves us because we keep his law? The truth is that God assures us he loves us---and
    that we love him---by _empowering_ us to keep his law. The New Covenant involves God writing his
    law on the hearts of his people: "I will put my law within them, and I will write it on their
    hearts" (Jer.  31:33).  Why should we think it strange for God to assure us by manifesting to us,
