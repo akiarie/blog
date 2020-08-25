@@ -109,8 +109,8 @@ published: true
    fixed on this organic relationship there will be no difficulty in working for God's glory and
    working to confirm our calling and election. Does the sunflower angle itself toward the sun in
    order to bask in the sun's glory, or in order to flourish? Isn't this a false dichotomy? C.S.
-   Lewis makes this very clear in his famous address _The Weight of Glory_. I make no apology for
-   quoting him at length: 
+   Lewis makes this point very clear in his famous address _The Weight of Glory_. I make no apology
+   for quoting him at length: 
     > The New Testament has lots to say about self-denial, but not about self-denial as an end in
     > itself. We are told to deny ourselves and to take up our crosses in order that we may follow
     > Christ; and nearly every description of what we shall ultimately find if we do so contains an
