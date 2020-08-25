@@ -8,7 +8,7 @@ published: true
 
 # Definitions
 - By _the Gospel_ I mean the whole counsel of God, as taught authoritatively in Holy Scripture,
-   which is in all its contents, from beginning to end, without any doubt whatever, the
+   which is in all its contents, from beginning to end, the
    revelation of Jesus Christ as Mediator between God and man.
 
 - By _certainty_ or _faith_ I mean the soul's persuation of, and commitment to, the truth of the
