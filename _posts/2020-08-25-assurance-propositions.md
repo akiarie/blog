@@ -30,7 +30,7 @@ published: true
 2. **It is the will of God for all who are in Christ to be assured**, to come to have "the _full
    assurance_ of hope" (Heb. 6:11), to boldy "enter with confidence the holy places by the blood of
    Jesus" and "draw near with true heart in _full assurance_ of faith...without wavering" (Heb.
-   10:19ff.), to "confirm their calling and election" (2 Peter 1:10), in order that "perfect love"
+   10:19ff.), to "confirm their calling and election" (2 Pet. 1:10), in order that "perfect love"
    may cast out all their fears (1 John 4:18), and they may sing triumphantly with the Psalmist,
    "the LORD is my light and my salvation, whom shall I fear?" (Ps. 27:1)
 
@@ -75,7 +75,7 @@ published: true
 
 9. **It is also important that believers know this assurance depends, in a measure, upon the means
    of grace, in order that they may cultivate it jealously.** Hence the Scriptural commands to
-   "confirm your calling and election" (2 Peter 1:10), to "show earnestness to have full assurance"
+   "confirm your calling and election" (2 Pet. 1:10), to "show earnestness to have full assurance"
    (Heb.  6:11). And it is taught plainly and repeatedly that this is done by walking in the light:
    "_By this we know_ that we have come to know him, if we keep his commandments...whoever keeps his
    word, in him truly the love of God is perfected. _By this we may know_ that we are in him:
