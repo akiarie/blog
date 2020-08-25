@@ -11,7 +11,7 @@ published: true
    which is in all its contents, from beginning to end, the revelation of Jesus Christ as Mediator
    between God and man.
 
-- By _certainty_ or _faith_ I mean the soul's persuation of, and commitment to, the truth of the
+- By _certainty_ or _faith_ I mean the soul's persuasion of, and commitment to, the truth of the
   Gospel: in a word, the saving commitment of the self to Jesus Christ, as he offers himself in his
   Gospel.
 
@@ -19,7 +19,7 @@ published: true
    That is to say, a secure person is one who will be in heaven.
 
 - By _assurance of salvation_ or _assurance_ I mean, in contrast to certainty, the soul's
-   persuation of its own security.
+   persuasion of its own security.
 
 # Propositions
 1. **Security is the possession of every person who is certain of the Gospel, of every person who has
@@ -28,7 +28,7 @@ published: true
    and in no wise deal with them as lawbreakers, but as beloved children in whom he is well pleased.
 
 2. **It is the will of God for all who are in Christ to be assured**, to come to have "the _full
-   assurance_ of hope" (Heb. 6:11), to boldy "enter with confidence the holy places by the blood of
+   assurance_ of hope" (Heb. 6:11), to boldly "enter with confidence the holy places by the blood of
    Jesus" and "draw near with true heart in _full assurance_ of faith...without wavering" (Heb.
    10:19ff.), to "confirm their calling and election" (2 Pet. 1:10), in order that "perfect love"
    may cast out all their fears (1 John 4:18), and they may sing triumphantly with the Psalmist,
@@ -48,7 +48,7 @@ published: true
    concerns the individual also.**
 
 5. **Assurance, which is the effect of this ministry of the Holy Ghost in the lives of believers,
-   though like faith the common possesion of the children of God, varies in degree both between
+   though like faith the common possession of the children of God, varies in degree both between
    believers and within the lives of believers.**
 
 6. **This is because assurance, although a work of the Holy Ghost, is not merely a mystical
@@ -87,9 +87,9 @@ published: true
    we may have confidence for the day of judgment, because as he is so also are we in this world."
    (1 John 4:16--17)
 
-10. **The Bible comforts the sinner who desires holiness, but condmens the one who hardens his heart
+10. **The Bible comforts the sinner who desires holiness, but condemns the one who hardens his heart
    in sin.** God's kindness leads to repentance (Rom. 2:4) and God cannot be mocked, whatever a man
-   sows, that shall he also reap (Gal. 6:7). "God opposess the proud but gives grace to the humble"
+   sows, that shall he also reap (Gal. 6:7). "God opposes the proud but gives grace to the humble"
    is in this sense a summary of the Biblical doctrine of assurance: the proud can have no security,
    and should regard themselves as hanging on the precipice over hell; yet the humble, no matter how
    grave their transgressions, be they so many as the stars in heaven and so black as the heavens
