@@ -64,7 +64,13 @@ published: true
    Christ and the brethren, that sincerity of heart, and conscience of duty, out of which, by the
    operation of the Spirit, this assurance may, in due time, be revived; and by the which, in the
    meantime, they are supported from utter despair" (WCF 18.4). However, I do say that it is certain
-   that assurance may be shaken.
+   that assurance may be shaken. This is why it is dangerous to live in sin: while a believer does
+   not shake his security, in shaking his assurance he may come to that awful place in which he does
+   not know if he is secure. Then he is the man whom Peter describes as "so nearsighted that he is
+   blind, having forgotten that he was cleansed from his former sins" (2 Pet. 1:9). He can no longer
+   separate between himself and the apostate (who never knew the Lord) until he, as James instructs,
+   cleanses his hands and purifies his heart, drawing near to God with wretchedness and mourning and
+   weeping and gloom (James 4:6ff).
 
 8. **It is important that believers know this assurance varies, so that when it is shaken, they do
    not fall into utter despair.** For if the assurance of the godly cannot be shaken it follows
