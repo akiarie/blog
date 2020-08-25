@@ -51,11 +51,12 @@ published: true
    though like faith the common possesion of the children of God, varies in degree both between
    believers and within the lives of believers.**
 
-6. **This is because the work of the Holy Ghost is not merely a mystical experience, but something
-   produced in organic connection with the ordained means of grace as they are operative in the life
-   of the believer**: "But if we walk in the light, as he is in the light, we have fellowship with
-   one another, and the blood of Jesus his Son cleanses us from all sin" (1 John 1:7)---assurance
-   grows organically through walking in the light in communion with God's people.
+6. **This is because assurance, although a work of the Holy Ghost, is not merely a mystical
+   experience, but something produced in organic connection with the ordained means of grace as they
+   are operative in the life of the believer**: "But if we walk in the light, as he is in the light,
+   we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin" (1
+   John 1:7)---assurance grows organically through walking in the light in communion with God's
+   people.
 
 7. **By abandoning these means of grace, therefore, the believer may undermine to an extent his
    assurance.** I do not say what this extent is, except that believers are "never utterly destitute
