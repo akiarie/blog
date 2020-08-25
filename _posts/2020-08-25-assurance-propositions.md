@@ -156,4 +156,4 @@ published: true
    lame may not be put out of joint but rather healed, in order to strive for peace and the
    holiness without which no one will see the Lord. Let us be grateful for receiving a kingdom that
    cannot be shaken, and thus let us offer to God acceptable worship, with reverence and awe, for
-   our God is a consuming fire (Heb. 12:12ff.)
+   our God is a consuming fire (Heb. 12:12ff).
