@@ -149,7 +149,7 @@ published: true
    in our very lives, the sanctifying impact of his grace?
 
 14. Assurance, like every part of the Gospel, is a heavenly mystery, beyond the reach of the natural
-   man. It is Spiritually discerned, and folly to those who are perishing. Moreover, _abusus non
+   man. It is Spirit-discerned, and folly to those who are perishing. Moreover, _abusus non
    tollit usum_ (abuse does not destroy proper use): we cannot argue from the shipwrecks of faith
    which those who misunderstand this doctrine have made to its invalidity. Let us instead, without
    wavering or fearing, lift up our drooping hands and strengthen our weak knees, so that what is
