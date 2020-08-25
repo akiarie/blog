@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Some Propositions on Assurance"
+title: "14 Propositions on Assurance"
 date: 2020-08-25 03:00:00 +0300
 tags: [assurance, gospel]
 published: true
