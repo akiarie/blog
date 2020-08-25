@@ -105,28 +105,29 @@ published: true
    are not organically (I will keep using this word without shame) related to. C.S. Lewis makes this
    very clear in his famous address _The Weight of Glory_. I make no apology for quoting him at
    length: 
+    > The New Testament has lots to say about self-denial, but not about self-denial as an end in
+    > itself. We are told to deny ourselves and to take up our crosses in order that we may follow
+    > Christ; and nearly every description of what we shall ultimately find if we do so contains an
+    > appeal to desire. If there lurks in most modern minds the notion that to desire our own good
+    > and earnestly to hope for the enjoyment of it is a bad thing, I submit that this notion has
+    > crept in from Kant and the Stoics and is no part of the Christian faith. Indeed, if we
+    > consider the unblushing promises of reward and the staggering nature of the rewards promised
+    > in the Gospels, it would seem that Our Lord finds our desires, not too strong, but too weak.
+    > We are half-hearted creatures, fooling about with drink and sex and ambition when infinite joy
+    > is offered us, like an ignorant child who wants to go on making mud pies in a slum because he
+    > cannot imagine what is meant by the offer of a holiday at the sea. We are far too easily
+    > pleased. 
 
-> The New Testament has lots to say about self-denial, but not about self-denial as an end in
-> itself. We are told to deny ourselves and to take up our crosses in order that we may follow
-> Christ; and nearly every description of what we shall ultimately find if we do so contains an
-> appeal to desire. If there lurks in most modern minds the notion that to desire our own good and
-> earnestly to hope for the enjoyment of it is a bad thing, I submit that this notion has crept in
-> from Kant and the Stoics and is no part of the Christian faith. Indeed, if we consider the
-> unblushing promises of reward and the staggering nature of the rewards promised in the Gospels, it
-> would seem that Our Lord finds our desires, not too strong, but too weak. We are half-hearted
-> creatures, fooling about with drink and sex and ambition when infinite joy is offered us, like an
-> ignorant child who wants to go on making mud pies in a slum because he cannot imagine what is
-> meant by the offer of a holiday at the sea. We are far too easily pleased. 
-
-> We must not be troubled by unbelievers when they say that this promise of reward makes the
-> Christian life a mercenary affair. There are different kinds of reward. There is the reward which
-> has no _natural connexion_ with the things you do to earn it, and is quite foreign to the desires
-> that ought to accompany those things. Money is not the natural reward of love; that is why we call
-> a man mercenary if he marries a woman for the sake of her money. But marriage is the proper reward
-> for a real lover, and he is not mercenary for desiring it. A general who fights well in order to
-> get a peerage is mercenary; a general who fights for victory is not, victory being the proper
-> reward of battle as marriage is the proper reward of love. The proper rewards are not simply
-> tacked on to the activity for which they are given, but are the activity itself in consummation. 
+    > We must not be troubled by unbelievers when they say that this promise of reward makes the
+    > Christian life a mercenary affair. There are different kinds of reward. There is the reward
+    > which has no _natural connexion_ with the things you do to earn it, and is quite foreign to
+    > the desires that ought to accompany those things. Money is not the natural reward of love;
+    > that is why we call a man mercenary if he marries a woman for the sake of her money. But
+    > marriage is the proper reward for a real lover, and he is not mercenary for desiring it. A
+    > general who fights well in order to get a peerage is mercenary; a general who fights for
+    > victory is not, victory being the proper reward of battle as marriage is the proper reward of
+    > love. The proper rewards are not simply tacked on to the activity for which they are given,
+    > but are the activity itself in consummation. 
 
 13. Believers should therefore have no qualms about encouraging one another to work for the reward
    of assurance. Provided that this is done without suggesting that salvation is by works, we are
@@ -144,9 +145,9 @@ published: true
 14. Assurance, like every part of the Gospel, is a heavenly mystery, beyond the reach of the natural
    man. It is Spiritually discerned, and folly to those who are perishing. Moreover, _abusus non
    tollit usum_ (abuse does not destroy proper use): we cannot argue from the shipwrecks of faith
-   which those who misunderstand this doctrine have made to its invalidity. Let us therefore,
-   without wavering or fearing, lift up our drooping hands and strengthen our weak knees, so that
-   what is lamed may not be put out of joint but rather healed, in order to strive for peace and the
+   which those who misunderstand this doctrine have made to its invalidity. Let us instead, without
+   wavering or fearing, lift up our drooping hands and strengthen our weak knees, so that what is
+   lamed may not be put out of joint but rather healed, in order to strive for peace and the
    holiness without which no one will see the Lord. Let us be grateful for receiving a kingdom that
    cannot be shaken, and thus let us offer to God acceptable worship, with reverence and awe, for
    our God is a consuming fire (Heb. 12:12ff.)
