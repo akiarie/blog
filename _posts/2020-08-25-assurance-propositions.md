@@ -58,12 +58,13 @@ published: true
    John 1:7)---assurance grows organically through walking in the light in communion with God's
    people.
 
-7. **By abandoning these means of grace, therefore, the believer may undermine to an extent his
-   assurance.** I do not say what this extent is, except that believers are "never utterly destitute
-   of that seed of God, and life of faith, that love of Christ and the brethren, that sincerity of
-   heart, and conscience of duty, out of which, by the operation of the Spirit, this assurance may,
-   in due time, be revived; and by the which, in the meantime, they are supported from utter
-   despair" (WCF 18.4). However, I do say that it is certain that assurance may be shaken.
+7. **By abandoning these means of grace, therefore, the believer may undermine greatly his
+   assurance.** I do not say, nor do I claim to understand, how great an extent this may be, except
+   that believers are "never utterly destitute of that seed of God, and life of faith, that love of
+   Christ and the brethren, that sincerity of heart, and conscience of duty, out of which, by the
+   operation of the Spirit, this assurance may, in due time, be revived; and by the which, in the
+   meantime, they are supported from utter despair" (WCF 18.4). However, I do say that it is certain
+   that assurance may be shaken.
 
 8. **It is important that believers know this assurance varies, so that when it is shaken, they do
    not fall into utter despair.** For if the assurance of the godly cannot be shaken it follows
