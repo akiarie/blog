@@ -137,7 +137,7 @@ published: true
    works-based salvation and the self-righteous attitude? Does anyone dare accuse him of undermining
    the principle of grace which he himself enacted into operation? Does he teach that God loves us
    because we keep his law? The truth is that God teaches us he loves us---and that we love him---by
-   _empowering_ us to keep his law? The New Covenant involves God writing his law on the hearts of
+   _empowering_ us to keep his law. The New Covenant involves God writing his law on the hearts of
    his people: "I will put my law within them, and I will write it on their hearts" (Jer. 31:33).
    Why should we think it strange for God to assure us by manifesting to us, in our very lives, the
    sanctifying impact of his grace?
