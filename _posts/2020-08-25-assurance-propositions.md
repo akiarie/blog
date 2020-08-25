@@ -12,7 +12,7 @@ published: true
    revelation of Jesus Christ as Mediator between God and man.
 
 - By _certainty_ or _faith_ I mean the soul's persuation of, and commitment to, the truth of the
-   Gospel: in a word, the saving commitment of the self to the redemption offered Jesus Christ.
+   Gospel: in a word, the saving commitment of the self to Jesus Christ, as he offers himself in his Gospel.
 
 - By _security_ I mean the likelihood or probability of an individual person entering heaven.
    That is to say, a secure person is one who will be in heaven.
