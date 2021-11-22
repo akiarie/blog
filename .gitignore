@@ -3,6 +3,5 @@
 Gemfile.lock
 _site
 *.gem
-assets/
 *.swp
 _drafts/.jekyll-cache
