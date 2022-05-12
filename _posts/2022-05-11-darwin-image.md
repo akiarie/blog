@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Theistic Evolution Annihilates the _Imago Dei_"
-date: 2022-06-11 07:45:00 +0300
+date: 2022-06-11 07:30:00 +0300
 tags: [scripture, evolution, man]
 published: true
 ---
