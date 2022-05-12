@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Theistic Evolution Annihilates the _Imago Dei_"
-date: 2022-05-11 20:30:00 +0300
+date: 2022-06-11 07:45:00 +0300
 tags: [scripture, evolution, man]
 published: true
 ---
@@ -14,7 +14,7 @@ etc.) The specific denotation of the creation in the _imago Dei_ is something th
 extended, exegetical study that I am not prepared to undertake today. For our purposes in this
 brief article, I will be content to make the following observation:
 
-## The _Imago Dei_ is the Chief Definitional Characteristic of Man's nature.
+## The _Imago Dei_ is the Chief Definitional Characteristic of Man's Nature.
 
 When God creates man (in Gen. 1), the only defining characteristics given are
 that he is to be "in our image, after our likeness" (v.&nbsp;26) and "male and female":
@@ -54,9 +54,9 @@ compromise, forgetting that "the wisdom of this world is folly with God". But Go
 mocked: "He catches the wise in their craftiness" (1 Cor. 3:19).
 
 The theologians who attempt to reconcile Genesis with Darwin have spilled much ink to prove that
-the first chapter of the Bible is a hymn, an exalted song, a supra-literal, a sub-scientific
-writing—in sum, an uncertain but artistic conglomeration of words that tell us nothing specific
-except that "God somehow created everything".
+the first chapter of the Bible is a hymn, an exalted song, a supra-literal, a pre-scientific
+writing—in sum, an uncertain but artistic conglomeration of sounds and letters that tell us nothing
+specific except that "God somehow created everything".
 
 The simple point I want to make here is that evolutionary theory is irreconcilable with the biblical
 doctrine of man as the image of God. The reason for this is found in the gradual, step-by-step
