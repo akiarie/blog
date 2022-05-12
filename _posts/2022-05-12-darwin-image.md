@@ -74,7 +74,7 @@ The simple point I want to make here is that evolutionary theory is irreconcilab
 doctrine of Man as the image of God. The reason for this is found in the gradual, step-by-step
 nature of the Darwinian view. This gradualism implies that there are no radical jumps between Adam
 and his immediate sub-human ancestors, but rather, everything we see in Adam was produced in a
-sequence of infintesimal changes.
+sequence of infinitesimal changes.
 
 Now if this is admitted to be the case, we must ask what the creation of Adam in God's image
 entails. Compare Adam's father, whom we shall call _Homo ante Homine_, "the Man before Man", or
