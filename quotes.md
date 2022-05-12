@@ -15,17 +15,19 @@ Some short words I wish everyone believed.
 
 Basil the Great, _The Hex&#230;meron_
 
-### Providence
-> God is the disposer and ruler of all things,---that from the remotest eternity, according to his
-> own wisdom, he decreed what he was to do, and now by his power executes what he decreed. We
-> maintain, that by his providence, not heaven and earth and inanimate creatures only, but also the
-> counsels and wills of men are so governed as to move exactly in the course which he has destined.
-> What, then, you will say, does nothing happen fortuitously, nothing contingently? I answer, it was
-> a true saying of Basil the Great, that Fortune and Chance are heathen terms; the meaning of which
-> ought not to occupy pious minds. For if all success is blessing from God, and calamity and
-> adversity are his curse, there is no place left in human affairs for fortune and chance.
+### Testimonium Spiritus Sancti
 
-Calvin, _Institutes_, I.16.8
+> Nothing can be more absurd than the fiction that the power of judging Scripture is in the Church,
+> and that on her nod its certainty depends. When the Church receives it, and gives it the stamp of
+> her authority, she does not make that authentic which was otherwise doubtful or controverted but,
+> acknowledging it as the truth of God, she, as in duty bounds shows her reverence by an
+> unhesitating assent. As to the question, How shall we be persuaded that it came from God without
+> recurring to a decree of the Church? it is just the same as if it were asked, How shall we learn
+> to distinguish light from darkness, white from black, sweet from bitter? Scripture bears upon the
+> face of it as clear evidence of its truth, as white and black do of their colour, sweet and bitter
+> of their taste.
+
+Calvin, _Institutes_, I.7.2
 
 ### Opinions
 > The modern habit of saying 'This is my opinion, but I may be wrong' is entirely irrational. If I
